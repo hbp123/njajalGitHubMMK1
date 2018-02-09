@@ -1,0 +1,2 @@
+# njajalGitHubMMK1
+belajar
